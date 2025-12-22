@@ -1,4 +1,4 @@
-# Resume
+
 ## Basal Ali
 ### Mail: <ab375911@gmail.com>
 ---
